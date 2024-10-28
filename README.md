@@ -1,2 +1,1 @@
-# WATSON-XD-BOT-PAIR
-Enjoy 😍😊 
+# PAIR-WEB-SC
